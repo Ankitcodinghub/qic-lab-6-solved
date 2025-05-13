@@ -1,0 +1,1 @@
+# qic-lab-6-solved
